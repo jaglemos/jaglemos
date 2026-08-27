@@ -5,7 +5,6 @@
 ## 📫 Conecta conmigo
 
 - 💼 [**LinkedIn**](https://www.linkedin.com/in/jaimeiglesiasramos/)
-- 🐦 [**Twitter**](https://twitter.com/iglexiax/)
 - 📷 [**Instagram**](https://instagram.com/jaglemos.ex/)
 - 🌐 [**Web**](https://jaimeiglesias.es)
 
